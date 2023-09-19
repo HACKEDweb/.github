@@ -39,7 +39,7 @@ https://orbitalmechanics.info/
 
 https://glitch.com/
 
-**MORE COMEING SOON**
+**MORE COMING SOON**
 
 
 
