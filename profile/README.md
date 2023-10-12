@@ -37,8 +37,35 @@ https://lookerstudio.google.com/navigation/reporting
 
 https://orbitalmechanics.info/
 
+https://www.creativebloq.com/web-design/50-free-web-tools-51620514
+
 https://glitch.com/
 
+https://usemetallic.com/2.html?fr=
+
+https://fognetwork.github.io/Nightmare/
+
+https://github.com/FogNetwork/Avo
+
+https://mathgames67.github.io/
+
+hehehehhehehe.artclass.site
+
+https://physics4noobs.co/partner/
+
+https://dm-unbl0cker-nfqx.vercel.app/
+
+https://computerconnor.netlify.app/sidebar/game-page/games/paperio2/index.html
+
+https://schoolshs.vercel.app/
+
+https://eeegames.vercel.app/
+
+https://cheesegames.net/
+
+https://othermgwebsite.github.io/
+
+https://vexgames.online/games/
 **MORE COMING SOON**
 
 
