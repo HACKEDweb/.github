@@ -5,7 +5,10 @@
 🌈 give useful website and help grow are index of web sites
 
 I hope this can grow to something bigger someday
-ALT VERSION Google docs https://docs.google.com/document/d/19FytCf93Vndz5A3z7XG0jwIqmaZMr_uSaBrie6vpv3A/edit?usp=sharing
+
+Below is the one i am curently working on 
+
+https://docs.google.com/document/d/e/2PACX-1vTMxZtz5OL7fVj3eJQj--sLsyjZbRh_ORB1sB-kFm266oPNO-vc8_XimJR1qYpm2daciqUsidL6Jgo8/pub
 
 
 
